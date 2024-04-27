@@ -1,0 +1,6 @@
+![Screenshot (85)](https://github.com/manis-saha129/SpectoV/assets/139264745/c87d4ebc-f5e5-4b98-ad0c-ba51882e7b65)
+![Screenshot (86)](https://github.com/manis-saha129/SpectoV/assets/139264745/3e5092b9-74d8-4b55-9958-b77f28d22a5b)
+![Screenshot (87)](https://github.com/manis-saha129/SpectoV/assets/139264745/81a06dcf-8b10-405a-ad11-d4174da2da2f)
+![Screenshot (88)](https://github.com/manis-saha129/SpectoV/assets/139264745/0a15aa7f-26e9-4494-aa51-1ec8aa968406)
+![Screenshot (89)](https://github.com/manis-saha129/SpectoV/assets/139264745/ee74c0a3-8946-4217-8cf8-93f1d4005ea5)
+![Screenshot (90)](https://github.com/manis-saha129/SpectoV/assets/139264745/2dff38ca-8314-4bc3-b5c6-683c7ca8c642)
